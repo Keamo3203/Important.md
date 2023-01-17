@@ -1,0 +1,1 @@
+I think it is more important to understand the work so that I can able to use the skiils and knowledge in the workplace
